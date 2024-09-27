@@ -1,4 +1,4 @@
-👋 Heyo! I’m @lobhasap    lobhasap.github.io/portfolio/
+👋 Heyo! I’m @lobhasap   
 
 👀 Currently vibing with: Coding things that may or may not crash my computer, building apps no one asked for, and staying ahead in the tech game.
 
