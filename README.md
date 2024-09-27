@@ -6,7 +6,7 @@
 
 💞️ Let’s make something epic: If it involves cool tech, creative chaos, or giving GPT all the credit for my next breakthrough—I'm in.
 
-📫 Slide into my inbox: lobhasap@gmial.com or stalk me on LinkedIn (no shame).
+📫 Slide into my inbox: lobhasap@gmail.com or stalk me on LinkedIn (no shame).
 
 😄 Pronouns: He/Him (but my code? It identifies as an eternal WIP).
 
