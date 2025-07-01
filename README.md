@@ -10,6 +10,6 @@
 
 😄 Pronouns: He/Him (but let’s be real, my code has no gender—it’s just confused).
 
-⚡ Fun fact: I write code like I live my life—add a bit of chaos, a dash of caffeine, and let GPT-4 handle the hard parts. 🤖💡
+⚡ Fun fact: I write code like I live my life—add a bit of chaos, a dash of caffeine, and let GPT handle the hard parts. 🤖💡
 
-“I swear I had an original idea... until GPT-4 wrote it better.” – Me, every day.
+“I swear I had an original idea... until GPT wrote it better.” – Me, every day.
